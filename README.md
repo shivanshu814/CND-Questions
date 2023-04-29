@@ -13,3 +13,6 @@ https://www.examtopics.com/exams/eccouncil/312-38
 
 ## premiumdumps
 https://www.premiumdumps.com/eccouncil/eccouncil-312-38-cnd-dumps
+
+## yumpu
+https://www.yumpu.com/en/document/read/54905886/pass4sure-312-38-exam-questions-updated-1z0-533-test-questions
