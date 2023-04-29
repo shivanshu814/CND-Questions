@@ -10,3 +10,6 @@ https://vceplus.io/exams/5638/312-38/20704/eccouncil-pre-312-38-by-vceplus-383q-
 
 ## examtopics
 https://www.examtopics.com/exams/eccouncil/312-38
+
+## premiumdumps
+https://www.premiumdumps.com/eccouncil/eccouncil-312-38-cnd-dumps
