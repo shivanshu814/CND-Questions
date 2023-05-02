@@ -16,3 +16,6 @@ https://www.premiumdumps.com/eccouncil/eccouncil-312-38-cnd-dumps
 
 ## yumpu
 https://www.yumpu.com/en/document/read/54905886/pass4sure-312-38-exam-questions-updated-1z0-533-test-questions
+
+## BrainDumps
+https://www.braindump2go.com/free-online-pdf/312-38-VCE-Dumps(531-570).pdf
